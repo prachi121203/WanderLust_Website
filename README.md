@@ -1,1 +1,1 @@
-# WanderLust_Website
+# WANDERLUST PROJECT
